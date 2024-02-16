@@ -1,3 +1,0 @@
-# TareaGHGrupal
-
-test de nico
